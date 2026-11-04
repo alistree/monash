@@ -1,5 +1,4 @@
 ---
-layout: post
 title: "莫纳什大学毕业证（Monash University diploma）学历文凭样式对照展示"
 keywords: "莫纳什大学毕业证, Monash University diploma, 莫纳什大学文凭样式, 澳洲留学生学历认证, 莫纳什大学毕业证防伪"
 description: "本文全方位解析莫纳什大学毕业证（Monash University diploma）最新的官方标准样式，深度对照校徽排版、核心防伪技术（猩红钢印、全息标签）以及本科、硕士、博士等不同学位的排版差异，并提供My eQuals与中留服学历认证的官方核验渠道指南。"
